@@ -1,2 +1,2 @@
 # Heart-road
-Record sharing
+Personal experience, sentimental record sharing
